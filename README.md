@@ -2,3 +2,6 @@ this is for exloader, hello this is my fn external cheat, it runs of a cracked c
 i disabled keyauth for this version so you can type anything and it will say that its the right key.
 
 its fairly undetected as you can go up to 3 days rage cheating without getting banned if you do it right, and even longer if you legit cheat
+
+
+crosshair x crack: https://steamunlocked.net/17077-crosshair-x-free-download/
